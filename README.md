@@ -1,3 +1,4 @@
+# made by t.me/aiogrammader
 # robloxAIOGRAM
 бля ну и нахуя
 # ЧТО НУЖНО ДЛЯ ТОГО ЧТОБЫ СКАМИТЬ ДЕТЕЙ НА КУКИ
