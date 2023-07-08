@@ -1,5 +1,5 @@
 # made by t.me/aiogrammader
-# robloxAIOGRAM
+# robloxSCAM
 бля ну и нахуя
 # ЧТО НУЖНО ДЛЯ ТОГО ЧТОБЫ СКАМИТЬ ДЕТЕЙ НА КУКИ
 1) питон
